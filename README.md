@@ -1,1 +1,0 @@
-# cybersova.github.io
